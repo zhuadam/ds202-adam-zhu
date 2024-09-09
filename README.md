@@ -2,7 +2,7 @@
 ode to an academic advisor
 
 ### a crappy: 
-- what's the worst thing that happened since school started?
+- i fell asleep
 
 ### a happy: 
-- what's the best thing that happened since school started?
+- i get to talk to a lot of people
